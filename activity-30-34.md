@@ -38,70 +38,11 @@ Chronic stress makes us less than who we are and who we could be. Renewal can’
 12 Discuss
 Coaches’ Corner: How have you seen the chronic stress cycle and the renewal cycle affect your work with students?
 
-Activity 31: Breathe
-1 Review and Discuss 10:
-Attachment: Chronic Stress Cycle vs Renewal Cycle
-Before we get started, what have you noticed so far about when you experience stress and when you experience renewal?
-2 Discuss 5
-Let’s think about breathing for a minute. When do you naturally breathe faster? 
-3 Discuss 5
-When do you naturally breathe slower?
-4 Discuss 5
-We tend to breathe faster when we are under stress. That can be physical stress such as exercise. Or it can be mental stress. For instance, when people are nervous about speaking in front of a group, they sometimes have such short, shallow breaths that they have difficulty speaking. On the other hand, we tend to breathe slower and deeper when we relax.
-So what do you think might happen if you actually forced yourself to breathe slower?
-5 Custom
-When we intentionally breathe slower, we tend to relax. 
-We usually think about how our mind tells our body what to do. But it can work the other way around too. Changing our body can also change our mind. Psychologists call this embodied cognition; others call it the mind-body connection.
-6 Custom
-The mind-body connection means that you can use your breathing kind of like a volume control. Feeling stressed and want to relax? Need to focus and learn? Try turning down the volume by slowing down your breathing. It’s one of the easiest ways to trigger the renewal cycle.
-7 Review and Discuss: 10
-Attachment: Slow Breathing Exercise
-With a little practice and patience, you can learn to use slow breathing any time you want to relieve stress and renew your mind. 
-Try out the 3 steps of slow breathing. How many seconds were you able to make one out-and-in breath last?
-8 Review:
-Attachment: Slow Breathing Exercise
-Slow breathing might seem awkward at first. But with practice, it’s one of the simplest ways to trigger the renewal process any time you feel too much stress. It’s so reliable that people in high stress jobs, from performers to professional athletes, have been trained to use it too.
-9 Custom
-You can try slow breathing for a couple minutes before and after a stressful event, such as a quiz or a big game. Or make it a daily exercise at a regular time, such as after you get home, to help you renew your strength.
-10 Discuss:    
-<b>Challenge:</b> Try practicing slow breathing daily this week to trigger your renewal system. Even if you decide not to keep doing it, you’ll build a skill that you can call on whenever you need it. If you choose to take this challenge, write a regular time each day, such as “before meals” when it would be easier to remember practicing slow breathing?
-11 Discuss
-<b>Feedback:</b> How helpful was this activity for you compared to others: more, same, or less? Why?
-	12 Custom
-<b>Coaches’ Tip:</b> Slow breathing can work wonders for the many stresses that adults face too. Try it out the next time you’re feeling stressed, or better yet, before your stress begins. 
+
 
 
 
-Activity 32: Gratitude
-1 Discuss 1
-Before we get started, let’s review the skill we learned earlier. What do you remember about slow breathing and how to do it?
-2 Review and Discuss 1: 
-Attachment: Slow Breathing Exercise
-Slow breathing can be a great way to trigger your renewal cycle any time you want, reversing stress and strengthening your mind and body. So let’s practice slow breathing again. How many seconds can you make one out-and-in breath last?
-3 Custom
-In this activity, we’re going to take some time to learn about gratitude: the art of being thankful. It can be pretty powerful, as the following video demonstrates.
-4 Review and Discuss 10: 
-Attachment: Gratitude Experiment Video 
-List as many things as you can about how expressing gratitude affected people in the video.
-5 Discuss 10
-As you might have guessed, expressing gratitude is another way of triggering the renewal cycle, reducing stress, helping you feel better and sleep better.
-Why do you think gratitude might trigger the renewal cycle?
-6 Review and discuss 10: 
-Attachment: Negativity Bias
-As we discussed earlier, most of us most of the time have a natural negativity bias:negative events simply capture more of our attention. Gratitude refocuses us on looking for the many positive things that we have to be thankful for.
-What are some positive things that you are grateful for?
-7 Discuss 1 
-Gratitude also changes the way we see our role from being victims to victors, from being receivers to givers. That’s why it’s called “giving thanks” and why we have a holiday in November called “Thanksgiving.”
-Who would you like to be able to give the gift of thanks to? 
-8 Discuss 1
-And when we give thanks to others, we also bask in the glow of the positive emotions that they experience. Our mirror neuron networks mean that, even as we give happiness to others by appreciating them, we feel that happiness mirrored back in our own hearts.
-What’s a time when making someone else happy helped to make you happy?
-9 Discuss
-<b>Challenge:</b> Set a goal to get better at being thankful and at saying thanks. If you choose to accept this challenge, write about how you would like to get better.
-10 Discuss
-<b>Feedback:</b> How helpful was this activity for you compared to others: more, same, or less? Why?
-11 Custom
-<b>Coaches Corner:</b> Gratitude is a great practice to model for students. You can talk about things you’re grateful for that day, ask students to share what they’re grateful for. The time you take each day to show gratitude is a good investment in making the day better for yourself and those around you. Check out the next activity on superpower thank yous for more tips. 
+
 Activity 33: Superpowered thank yous
 
 1 Custom
