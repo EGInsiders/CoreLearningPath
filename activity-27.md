@@ -1,4 +1,4 @@
-**Activity 27: Can you feel it?**
+# Activity 27: Can you feel it?
 
 ## **1 Discuss 1**
 
