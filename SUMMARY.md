@@ -7,4 +7,6 @@
 * [Activity 30 - 34](activity-30-34.md)
 * [Activity 31](activity-31.md)
 * [Activity 32](activity-32.md)
+* [Activity 33](activity-33.md)
+* [Activity 34](activity-34.md)
 
